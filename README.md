@@ -10,3 +10,8 @@ Repositorys opened on 2022.12.16
 
 
 # **Let's Travel to Web3.**
+
+---
+2024.5
+
+最近的两年半发生了很多事情......准备继续开始捡起来学习了
