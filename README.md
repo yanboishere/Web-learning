@@ -3,14 +3,6 @@
 Leaning place: [Acwing](https://www.acwing.com/activity/content/introduction/1150/)<br>
 Repositorys opened on 2022.12.16
 
-
-
-<br>
-
-
-
-## **Let's Travel to Web3.**
-
 ---
 2024.5
 
